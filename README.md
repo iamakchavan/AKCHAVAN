@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @akc4d02
-- 👀 I’m interested in ...Ethical Hacking
+- 👀 I’m interested in ...Security Professional..
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...!
 - 📫 How to reach me ...??
