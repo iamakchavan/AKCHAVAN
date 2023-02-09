@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @akc4d02
-- 👀 I’m interested in ...Security Professional..
-- 🌱 I’m currently learning ... Artificial Intelligence & Machine Learning
+- 👀 I’m interested in ... Sleeping late!
+- 🌱 I’m currently learning ... oops I forgot!
 - 💞️ I’m looking to collaborate on ...!
 - 📫 How to reach me ...?? akc4d02@gmail.com
 
